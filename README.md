@@ -7,6 +7,8 @@
 
 ⟢ asexual & singel 🥺
 
+⟢ CHESPIN INT
+
 ⟢ always w2i & c+h
 
 
