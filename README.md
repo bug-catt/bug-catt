@@ -1,12 +1,10 @@
 ![](https://komarev.com/ghpvc/?username=bug-catt&color=blue&style=plastic&label=stalkers) 
 
 
-⟢ chud
+⟢ moroccan
 
 ⟢ minor 
 
-⟢ asexual & singel 
+⟢ asexual & single
 
-⟢ fairs 👌 
-
-  
+⟢ artist 
